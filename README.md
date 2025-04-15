@@ -3,5 +3,5 @@ Tatjana Grencione
 Ricards
 Emils
 Gustavs
-Janis
+Janis Cerins (sveikini)
 Krisjanis
