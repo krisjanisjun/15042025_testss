@@ -4,4 +4,4 @@ Ricards
 Emils
 Gustavs
 Janis
-Krisjanis
+Krisjanis Junkers
